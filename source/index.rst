@@ -7,11 +7,12 @@ Welcome to ielts learner's documentation!
 =========================================
 .. note::
    This book is under development
-   
+
 Indices and tables
 ==================
 .. toctree::
    :maxdepth: 2
    :caption: Contents:
+   vocabulary
    speaking
    writing
