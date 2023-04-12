@@ -63,4 +63,27 @@ With her lovely dark hair Ella looks best when she wears bright colour.
 In your essay on the influence of TV, don't forget to discuss these key issues.
 There is some crime in our town bit it isn't major problem.
 
-We are going to launch 
+We are going to launch an exciting new product in June.
+The economy boomed 30 years ago.
+The new university they are planning will create a lot of job opportunities.
+There are always some problems when two companies merge to gether but I think it will be worth it in the long run.
+The increase in oil price certainly poses a problem for us.
+The company expanded and has now added children's clothing to its product range.
+
+Most older people feel a slight pang nostalgia as they think back on their schooldays.
+Grace's father was filled with horror when he saw that she had dyed her beautiful black hair blonde.
+When Daniel saw how harshly the poor were treated by the wealthy landowners he felt a surge of anger.
+Swelling with pride, Jack watched his daughter pick up her violine and play.
+When she saw her exam results, Kate burst into tears.
+If people have a sense of pride in their town, they are more likely to behave well there.
+
+Perhaps it's a good thing that Liam's blissfully unaware of what people really think of him.
+I am fully aware that there will be problems whatever we decide.
+Stella smiled proudly as she watched his daughter pick up her violin and play.
+My grandparents have been ... married for 45 years.
+Place the glasses gently in the box - they're very fragile.
+William shispered softly in Anna's ear that he would always love her.
+
+blissfully happy - burst into something
+tread carefully 
+a sur
