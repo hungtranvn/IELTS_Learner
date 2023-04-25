@@ -11,8 +11,7 @@ Welcome to ielts learner's documentation!
 Indices and tables
 ==================
 .. toctree::
-   :maxdepth: 2
-   :caption: Contents:
    vocabulary
    speaking
    writing
+   reading

@@ -193,3 +193,24 @@ liked that school. I enjoyed it a lot.
 **What was the best part of the day?**
 **Watch again and note any useful phrases and collocations**
 
+*********
+Questions
+*********
+
+#. Part 1
+    * What kind of school did you go to as a child?
+    * Did you go to co-educational school?
+    * What was your favorite subject as a child?
+    * Who was your favorite teacher?
+
+#. Part 2
+    * Describe a subject you enjoyed studying at school?
+    When and where you started studying it?
+    What lessons were like?
+    What made the subject different from other subjects?
+    Why you enjoyed the subject?
+
+#. Part 3
+    * How are education priorities today different those in the past?
+    * Is a good education more important to a boy or a girl? why?
+    * How well do you think schools should prepare young people for working life?
