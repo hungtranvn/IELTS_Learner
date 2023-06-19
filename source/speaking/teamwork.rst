@@ -1,8 +1,19 @@
+Keith vocabulary:
+People come together and help each other out.
+I can say that
+Stick around for that
+
+The pink super moon day.
+lean out the window and have a look
+
+Two heads are better than one.
+Every one should compromise to achive a common goal.
+
+
+
 Questions:
 
 Part 1:
-
-
 
 Do you like working in a team or alone? Why?
 
@@ -16,8 +27,6 @@ How do you usually contribute to a team project?
 Part 2:
 Describe a time when you worked in a team to achieve a goal.
 
-
-
 What was the goal?
 
 Who was in your team?
@@ -30,8 +39,6 @@ How did you feel about the experience?
 
 
 Part 3:
-
-
 
 What are some advantages and disadvantages of working in a team?
 
